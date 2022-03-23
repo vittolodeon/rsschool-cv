@@ -1,1 +1,1 @@
-# rsschool-cv gvgv 
+https://vittolodeon.github.io/rsschool-cv/cv
